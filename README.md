@@ -47,12 +47,11 @@
 
 ## Output:
 
-![435916630-9801f1c0-209e-426a-9511-696fa9c9e42a](https://github.com/user-attachments/assets/3a9cce6e-b8a6-4afe-828d-37212cf40c14)
+
+![444761863-d9dd1239-747c-4cca-9236-b5d7eb3486be](https://github.com/user-attachments/assets/54bc9047-351a-4f23-aef1-a8a43b93d71e)
 
 
-![435916646-8386bc41-9366-4856-8e3a-335b43e64ad7](https://github.com/user-attachments/assets/eaf21d4c-2da9-4921-b1fb-a9f33f37b358)
-
-
+![444762009-23d07683-73d2-456a-9450-c9c01b1e14c4](https://github.com/user-attachments/assets/1927683b-74bf-4dc1-8b71-03705df77ce7)
 
 
 
