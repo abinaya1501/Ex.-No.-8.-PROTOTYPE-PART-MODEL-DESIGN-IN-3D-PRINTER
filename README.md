@@ -47,9 +47,13 @@
 
 ## Output:
 
-![Screenshot 2025-05-06 104633](https://github.com/user-attachments/assets/034f9f85-d8a3-44dd-b0f3-7f78cd45373c)
+![435916630-9801f1c0-209e-426a-9511-696fa9c9e42a](https://github.com/user-attachments/assets/3a9cce6e-b8a6-4afe-828d-37212cf40c14)
 
-![Screenshot 2025-05-06 104654](https://github.com/user-attachments/assets/03ef64f1-32cb-48d1-9c9b-8c0c78c7fb70)
+
+![435916646-8386bc41-9366-4856-8e3a-335b43e64ad7](https://github.com/user-attachments/assets/eaf21d4c-2da9-4921-b1fb-a9f33f37b358)
+
+
+
 
 
 ### Name: ABINAYA A
