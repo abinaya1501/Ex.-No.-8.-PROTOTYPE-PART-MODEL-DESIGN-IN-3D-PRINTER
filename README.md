@@ -47,11 +47,11 @@
 
 ## Output:
 
+![Screenshot 2025-05-20 173848](https://github.com/user-attachments/assets/46abef3c-b323-4962-8ef5-651cb25bdde6)
 
-![444761863-d9dd1239-747c-4cca-9236-b5d7eb3486be](https://github.com/user-attachments/assets/54bc9047-351a-4f23-aef1-a8a43b93d71e)
+![Screenshot 2025-05-20 173909](https://github.com/user-attachments/assets/55bf3eb9-7a1e-44a7-8745-399ea747ee17)
 
-
-![444762009-23d07683-73d2-456a-9450-c9c01b1e14c4](https://github.com/user-attachments/assets/1927683b-74bf-4dc1-8b71-03705df77ce7)
+![Screenshot 2025-05-20 173745](https://github.com/user-attachments/assets/b4fe2ca5-1808-4fc6-87f4-f3d82e7aeb80)
 
 
 
